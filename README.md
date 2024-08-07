@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [#resume](#123)
 
-- ⚡ Fun fact **T Think I am funny**
+- ⚡ Fun fact **I Think I am funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
